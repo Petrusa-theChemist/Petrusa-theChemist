@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate in data analysis
 - 📫 How to reach me - send a message
 - 😄 Pronouns: ...
-- ⚡ Fun fact: in free time I like to play music, swim and enyoj
+- ⚡ Fun fact: in free time I like to play music, swim and enyoj life 
 
 <!---
 Petrusa-theChemist/Petrusa-theChemist is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
